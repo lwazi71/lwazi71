@@ -7,7 +7,7 @@ Here are some ideas to get you started:
 - 👯 I’m looking to collaborate on ... Websites, pages?
 - 🤔 I’m looking for help with ... Anything
 - 💬 Ask me about ... Anything 
-- 📫 How to reach me: ... https://twitter.com/mabota_lwazi(twitter) https://www.instagram.com/nolimitz71/(instagram)
+- 📫 How to reach me: ... https://twitter.com/mabota_lwazi email-lwazimabota1@gmail.com
 - 😄 Pronouns: ... He/Him
 - ⚡ Fun fact: ...  I love working out!
 -->
