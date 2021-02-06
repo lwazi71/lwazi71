@@ -9,5 +9,5 @@ Here are some ideas to get you started:
 - 💬 Ask me about ... Anything 
 - 📫 How to reach me: ... https://twitter.com/mabota_lwazi   email-lwazimabota1@gmail.com  
 - 😄 Pronouns: ... He/Him
-- ⚡ Fun fact: ...  I love working out!
+- ⚡ Fun fact: ...  I love lifting and anime!
 -->
